@@ -1,2 +1,18 @@
-# Social_Notes
-Ahh, you might just stumbled upon a repo used as a social media note, If you're seeing this, please go to one of my socials and type 🖕 so i'd know how many of you fell victim to this repo
+# QGFxdWlub21pa2U=
+
+```
+You're like a star,
+One I could never reach.
+I can look at you,
+I can talk to.
+
+deep down I always knew,
+I could never get close.
+You shine so bright,
+that you never left my gaze.
+
+Appart from space,
+I tried in so many ways.
+To reach you but, I always knew
+Ill burn with haze.
+```
