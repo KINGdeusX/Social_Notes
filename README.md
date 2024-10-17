@@ -16,5 +16,5 @@
   Apart by space, I've fought the gap, <br>
   In every way, I sought your light. <br>
   But reaching out, I'd feel the trap, <br>
-  Of burning haze that stops my flight. <br>
+  Of burning haze that stops my might. <br>
 </p>
